@@ -26,6 +26,8 @@ The AI video trends going around TikTok and Instagram in 2026 that you can make 
 
 | Trend | What happens | Photos | Length |
 | --- | --- | --- | --- |
+| [Christmas Elf Dance](https://turnphotointovideo.com/templates/christmas-elf-dance-ai-video/) | Golden sparkles swirl around you by the tree, you turn into a pointy-eared elf with a jingle-bell hat and dance a bouncy jig. Works with pets too. | 1 | 10 s |
+| [Wipe Me Down](https://turnphotointovideo.com/templates/wipe-me-down-ai-video/) | Knees low and both hands flicking at the floor on every beat: the Wipe Me Down stomp in a kitchen, with a hop and arm swings. | 1 | 10 s |
 | [Toc Toc Dance](https://turnphotointovideo.com/templates/toc-toc-dance-ai-video/) | The hop, the knock on an invisible door and the skip-kicks of the Toc Toc song. | 1 | 5–10 s |
 | [BbY WOW Dance](https://turnphotointovideo.com/templates/bby-wow-dance-ai-video/) | The party-guy routine: dance in, bite a pastry with a straight face, spin away. | 1 | 5–9 s |
 | [C-Walk](https://turnphotointovideo.com/templates/c-walk-dance-ai-video/) | C-Walk footwork across a city crosswalk, from the heel-toe shuffles to the final spin. | 1 | 5–10 s |
@@ -34,6 +36,7 @@ The AI video trends going around TikTok and Instagram in 2026 that you can make 
 
 | Trend | What happens | Photos | Length |
 | --- | --- | --- | --- |
+| [Closing Door Prank](https://turnphotointovideo.com/templates/closing-door-prank-ai-video/) | "One, two, three, go!": you sprint down the hallway, the door swings shut at the last second, and you squeeze through and land on your knees laughing. | 1, or 2 with whoever closes the door | 10 s |
 | [Flamingo Floatie](https://turnphotointovideo.com/templates/flamingo-floatie-ai-video/) | You lounge on a pink flamingo floatie in a rooftop infinity pool, wave back at the friend shouting "Bro! Bro!", and slide right off the edge. | 1 | 10 s |
 | [First Time in a Fancy Cafe](https://turnphotointovideo.com/templates/first-time-in-a-fancy-cafe-ai-video/) | You perch on the tiny cafe table like a stool until a regular sits down and shows what it's for; you slide off. | 1 (you on the table or walking in), or 2 | 10–15 s |
 | [Pimpwalk Entrance](https://turnphotointovideo.com/templates/pimpwalk-entrance-ai-video/) | Someone holds the barbershop door and you stroll in with the slow, low pimp walk. | 1, or 2 with a friend on the door | 10 s |
