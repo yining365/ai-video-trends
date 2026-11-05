@@ -34,6 +34,7 @@ The AI video trends going around TikTok and Instagram in 2026 that you can make 
 
 | Trend | What happens | Photos | Length |
 | --- | --- | --- | --- |
+| [Flamingo Floatie](https://turnphotointovideo.com/templates/flamingo-floatie-ai-video/) | You lounge on a pink flamingo floatie in a rooftop infinity pool, wave back at the friend shouting "Bro! Bro!", and slide right off the edge. | 1 | 10 s |
 | [First Time in a Fancy Cafe](https://turnphotointovideo.com/templates/first-time-in-a-fancy-cafe-ai-video/) | You perch on the tiny cafe table like a stool until a regular sits down and shows what it's for; you slide off. | 1 (you on the table or walking in), or 2 | 10–15 s |
 | [Pimpwalk Entrance](https://turnphotointovideo.com/templates/pimpwalk-entrance-ai-video/) | Someone holds the barbershop door and you stroll in with the slow, low pimp walk. | 1, or 2 with a friend on the door | 10 s |
 | [Coffee Making](https://turnphotointovideo.com/templates/coffee-making-ai-video/) | One of you makes coffee and floods the counter with milk; the other watches and judges. | 2 | 10–15 s |
