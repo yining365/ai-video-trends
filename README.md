@@ -16,6 +16,7 @@ The AI video trends going around TikTok and Instagram in 2026 that you can make 
 
 | Trend | What happens | Photos | Length |
 | --- | --- | --- | --- |
+| [Dog Elevator Prank](https://turnphotointovideo.com/templates/dog-elevator-prank-ai-video/) | Your pet walks upright beside you to the lift, presses the button, waits while you take your sneakers off, then shoves you in and tosses them after you. | 2 (your pet, then you), or 1 of your pet | 15 s |
 | [Zombie Ambush](https://turnphotointovideo.com/templates/zombie-ambush-ai-video/) | Your cat or dog is back as a glowing-eyed zombie in a dark room; the owner lowers the flashlight, opens their arms, and the two end up together in a field at sunset. | 1 of your pet, or 2 with you as the owner | 15 s |
 | [Hit the Road Dude](https://turnphotointovideo.com/templates/hit-the-road-dude-ai-video/) | The "State? This ain't no state property" pickup-truck clip, with you or your pet glaring from the driver's seat. | 1 | 10 s |
 | [Kung Fu Cat](https://turnphotointovideo.com/templates/kung-fu-cat-ai-video/) | Your pet sits up like a martial arts master and chops a tissue clean in half. | 1 of your pet | 5–10 s |
@@ -26,6 +27,7 @@ The AI video trends going around TikTok and Instagram in 2026 that you can make 
 
 | Trend | What happens | Photos | Length |
 | --- | --- | --- | --- |
+| [Ba Ba Ba Dance](https://turnphotointovideo.com/templates/ba-ba-ba-dance-ai-video/) | The "Don't You Worry 'Bout a Thing" duo: one of you dances, the other takes over, then you dance it side by side in a locker hallway. | 2, or 1 with an AI-made partner | 10 s |
 | [Christmas Elf Dance](https://turnphotointovideo.com/templates/christmas-elf-dance-ai-video/) | Golden sparkles swirl around you by the tree, you turn into a pointy-eared elf with a jingle-bell hat and dance a bouncy jig. Works with pets too. | 1 | 10 s |
 | [Wipe Me Down](https://turnphotointovideo.com/templates/wipe-me-down-ai-video/) | Knees low and both hands flicking at the floor on every beat: the Wipe Me Down stomp in a kitchen, with a hop and arm swings. | 1 | 10 s |
 | [Toc Toc Dance](https://turnphotointovideo.com/templates/toc-toc-dance-ai-video/) | The hop, the knock on an invisible door and the skip-kicks of the Toc Toc song. | 1 | 5–10 s |
@@ -36,6 +38,10 @@ The AI video trends going around TikTok and Instagram in 2026 that you can make 
 
 | Trend | What happens | Photos | Length |
 | --- | --- | --- | --- |
+| [Monkey Eating Apple](https://turnphotointovideo.com/templates/monkey-eating-apple-ai-video/) | A monkey leaps off a wall and grabs your apple mid-bite; a tug of war, you win it back and bite it anyway. | 1 | 10 s |
+| [Shoulder Carry](https://turnphotointovideo.com/templates/shoulder-carry-ai-video/) | The "I'm the one" trend: one of you is carried across the other's shoulders, swung down, then leans into the camera. | 2 | 10 s |
+| [AI Dunk](https://turnphotointovideo.com/templates/ai-dunk-ai-video/) | In your own clothes, you dribble down a packed arena court, slam it home with one hand and scream at the camera. | 1 | 10 s |
+| [Fish Cutting](https://turnphotointovideo.com/templates/fish-cutting-ai-video/) | "Grandpa said he'd handle dinner": you take a cleaver to a fish as long as the kitchen island, stare at the camera and flex. | 1 | 10 s |
 | [Closing Door Prank](https://turnphotointovideo.com/templates/closing-door-prank-ai-video/) | "One, two, three, go!": you sprint down the hallway, the door swings shut at the last second, and you squeeze through and land on your knees laughing. | 1, or 2 with whoever closes the door | 10 s |
 | [Flamingo Floatie](https://turnphotointovideo.com/templates/flamingo-floatie-ai-video/) | You lounge on a pink flamingo floatie in a rooftop infinity pool, wave back at the friend shouting "Bro! Bro!", and slide right off the edge. | 1 | 10 s |
 | [First Time in a Fancy Cafe](https://turnphotointovideo.com/templates/first-time-in-a-fancy-cafe-ai-video/) | You perch on the tiny cafe table like a stool until a regular sits down and shows what it's for; you slide off. | 1 (you on the table or walking in), or 2 | 10–15 s |
