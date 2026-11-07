@@ -27,6 +27,8 @@ The AI video trends going around TikTok and Instagram in 2026 that you can make 
 
 | Trend | What happens | Photos | Length |
 | --- | --- | --- | --- |
+| [Housewife Dance](https://turnphotointovideo.com/templates/housewife-dance-ai-video/) | The routine to Tate McRae's "Housewife", filmed from a phone on the floor: a low wide stance, hip sways, arms thrown up and both hands up at the end. | 1 | 10 s |
+| [Teach Me How to Dougie](https://turnphotointovideo.com/templates/teach-me-how-to-dougie-ai-video/) | The 2010 dance, back on TikTok: lean, brush a hand back over your head, left then right, and bounce easy. | 1 | 10 s |
 | [Ba Ba Ba Dance](https://turnphotointovideo.com/templates/ba-ba-ba-dance-ai-video/) | The "Don't You Worry 'Bout a Thing" duo: one of you dances, the other takes over, then you dance it side by side in a locker hallway. | 2, or 1 with an AI-made partner | 10 s |
 | [Christmas Elf Dance](https://turnphotointovideo.com/templates/christmas-elf-dance-ai-video/) | Golden sparkles swirl around you by the tree, you turn into a pointy-eared elf with a jingle-bell hat and dance a bouncy jig. Works with pets too. | 1 | 10 s |
 | [Wipe Me Down](https://turnphotointovideo.com/templates/wipe-me-down-ai-video/) | Knees low and both hands flicking at the floor on every beat: the Wipe Me Down stomp in a kitchen, with a hop and arm swings. | 1 | 10 s |
