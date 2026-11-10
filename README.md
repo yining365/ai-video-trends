@@ -28,6 +28,7 @@ The AI video trends going around TikTok and Instagram in 2026 that you can make 
 
 | Trend | What happens | Photos | Length |
 | --- | --- | --- | --- |
+| [Deck the Halls Dance](https://turnphotointovideo.com/templates/deck-the-halls-dance-ai-video/) | The Christmas pajama dance: two of you in matching plaid pajamas in a kitchen, straight-faced, with collar bounces, rolling arms, a spin, fists up on the "fa la la" and a freeze at the phone. | 2, or 1 solo | 10 s |
 | [Housewife Dance](https://turnphotointovideo.com/templates/housewife-dance-ai-video/) | The routine to Tate McRae's "Housewife", filmed from a phone on the floor: a low wide stance, hip sways, arms thrown up and both hands up at the end. | 1 | 10 s |
 | [Teach Me How to Dougie](https://turnphotointovideo.com/templates/teach-me-how-to-dougie-ai-video/) | The 2010 dance, back on TikTok: lean, brush a hand back over your head, left then right, and bounce easy. | 1 | 10 s |
 | [Ba Ba Ba Dance](https://turnphotointovideo.com/templates/ba-ba-ba-dance-ai-video/) | The "Don't You Worry 'Bout a Thing" duo: one of you dances, the other takes over, then you dance it side by side in a locker hallway. | 2, or 1 with an AI-made partner | 10 s |
