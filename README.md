@@ -17,12 +17,12 @@ The AI video trends going around TikTok and Instagram in 2026 that you can make 
 | Trend | What happens | Photos | Length |
 | --- | --- | --- | --- |
 | [Cat on Ultra Bee](https://turnphotointovideo.com/templates/cat-on-ultra-bee-ai-video/) | Your cat or dog stands on an electric dirt bike, paws on the handlebars, and holds a long wheelie down a city road at golden hour, in quick cuts like the viral clip. | 1 of your pet | 10 s |
-| [Dog Elevator Prank](https://turnphotointovideo.com/templates/dog-elevator-prank-ai-video/) | Your pet walks upright beside you to the lift, presses the button, waits while you take your sneakers off, then shoves you in and tosses them after you. | 2 (your pet, then you), or 1 of your pet | 15 s |
+| [Dog Elevator Prank](https://turnphotointovideo.com/templates/dog-elevator-prank-ai-video/) | Your pet walks upright beside you to the lift, presses the button, waits while you take your sneakers off, then nudges you into the lift and kicks the sneakers in after you. | 2 (your pet, then you), or 1 of your pet | 15 s |
 | [Zombie Ambush](https://turnphotointovideo.com/templates/zombie-ambush-ai-video/) | Your cat or dog is back as a glowing-eyed zombie in a dark room; the owner lowers the flashlight, opens their arms, and the two end up together in a field at sunset. | 1 of your pet, or 2 with you as the owner | 15 s |
 | [Hit the Road Dude](https://turnphotointovideo.com/templates/hit-the-road-dude-ai-video/) | The "State? This ain't no state property" pickup-truck clip, with you or your pet glaring from the driver's seat. | 1 | 10 s |
 | [Kung Fu Cat](https://turnphotointovideo.com/templates/kung-fu-cat-ai-video/) | Your pet sits up like a martial arts master and chops a tissue clean in half. | 1 of your pet | 5–10 s |
 | [Wizard Cat Dance](https://turnphotointovideo.com/templates/wizard-cat-dance-ai-video/) | Your pet in a tall wizard hat, dancing by a river at night. | 1 of your pet | 10–15 s |
-| [Dog Coffee Fail](https://turnphotointovideo.com/templates/dog-coffee-fail-ai-video/) | Two pets make coffee: one does it right, the other wrecks the counter. | 2, one of each pet | 10–15 s |
+| [Dog Coffee Fail](https://turnphotointovideo.com/templates/dog-coffee-fail-ai-video/) | Two pets make coffee: one spoons, one pours, and the mug is never where it lands. | 2, one of each pet | 10–15 s |
 
 ## Dance
 
@@ -51,7 +51,7 @@ The AI video trends going around TikTok and Instagram in 2026 that you can make 
 | [Flamingo Floatie](https://turnphotointovideo.com/templates/flamingo-floatie-ai-video/) | You lounge on a pink flamingo floatie in a rooftop infinity pool, wave back at the friend shouting "Bro! Bro!", and slide right off the edge. | 1 | 10 s |
 | [First Time in a Fancy Cafe](https://turnphotointovideo.com/templates/first-time-in-a-fancy-cafe-ai-video/) | You perch on the tiny cafe table like a stool until a regular sits down and shows what it's for; you slide off. | 1 (you on the table or walking in), or 2 | 10–15 s |
 | [Pimpwalk Entrance](https://turnphotointovideo.com/templates/pimpwalk-entrance-ai-video/) | Someone holds the barbershop door and you stroll in with the slow, low pimp walk. | 1, or 2 with a friend on the door | 10 s |
-| [Coffee Making](https://turnphotointovideo.com/templates/coffee-making-ai-video/) | One of you makes coffee and floods the counter with milk; the other watches and judges. | 2 | 10–15 s |
+| [Coffee Making](https://turnphotointovideo.com/templates/coffee-making-ai-video/) | One of you spoons the coffee, the other pours, and the mug keeps moving, so it all lands on the counter. | 2 | 10–15 s |
 
 ## Filters and transformations
 
