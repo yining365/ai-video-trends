@@ -45,6 +45,9 @@ The AI video trends going around TikTok and Instagram in 2026 that you can make 
 
 | Trend | What happens | Photos | Length |
 | --- | --- | --- | --- |
+| [Rubber Band Prank](https://turnphotointovideo.com/templates/rubber-band-prank-ai-video/) | You aim a giant exercise band like a slingshot at someone writing at the kitchen table; it snaps back into your own cheek and she just turns and stares. | 1 | 10 s |
+| [Spider Filter Prank](https://turnphotointovideo.com/templates/spider-filter-prank-ai-video/) | You're scrolling on the sofa when a big hairy spider drops onto your cheek: the frozen second, the scream, the phone flying and the leap. | 1 | 10 s |
+| [Thanksgiving Dinner](https://turnphotointovideo.com/templates/thanksgiving-dinner-ai-video/) | You stand at the head of a candlelit Thanksgiving table, carve the first slice of turkey and take a bow while everyone cheers. | 1 | 10 s |
 | [Monkey Eating Apple](https://turnphotointovideo.com/templates/monkey-eating-apple-ai-video/) | A monkey leaps off a wall and grabs your apple mid-bite; a tug of war, you win it back and bite it anyway. | 1 | 10 s |
 | [Shoulder Carry](https://turnphotointovideo.com/templates/shoulder-carry-ai-video/) | The "I'm the one" trend: one of you is carried across the other's shoulders, swung down, then leans into the camera. | 2 | 10 s |
 | [Chased by Hyenas](https://turnphotointovideo.com/templates/chased-by-hyenas-ai-video/) | You sprint across the red savanna at a shaky camera with a pack of hyenas on your heels; one tumbles in the dust, you look back and scream. | 1 | 10 s |
@@ -60,6 +63,8 @@ The AI video trends going around TikTok and Instagram in 2026 that you can make 
 
 | Trend | What happens | Photos | Length |
 | --- | --- | --- | --- |
+| [I Want Wings](https://turnphotointovideo.com/templates/i-want-wings-ai-video/) | The bug-to-butterfly glow-up: slumped at your desk under "Eww, squish it!", then a hard cut to you glowed up with a blue butterfly on your shoulder: "Be gentle". | 1 | 10 s |
+| [Snow Globe](https://turnphotointovideo.com/templates/snow-globe-ai-video/) | You, tiny, inside a snow globe on the mantel; a hand shakes it and you spin in the swirling snow. | 1 | 10 s |
 | [Santa Nice List](https://turnphotointovideo.com/templates/santa-nice-list-ai-video/) | Santa checks his Nice List in the workshop, blows gold sparkles into a gold frame, and your photo (or your pet's) comes alive in it and waves. | 1, you or your pet | 10 s |
 | [Toy Car to Real Car](https://turnphotointovideo.com/templates/toy-car-to-real-car-ai-video/) | A toy model of your car rides a train window, the train enters a tunnel, and your real car comes out. | 1 of your car | 10 s |
 | [Hello 2027](https://turnphotointovideo.com/templates/hello-2027-ai-video/) | You climb a giant marble 2027 on a mountain top for the new year, or push the 6 of 2026 off the cliff first. | 1 | 8–10 s |
