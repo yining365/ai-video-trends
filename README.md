@@ -16,6 +16,7 @@ The AI video trends going around TikTok and Instagram in 2026 that you can make 
 
 | Trend | What happens | Photos | Length |
 | --- | --- | --- | --- |
+| [Paws At You](https://turnphotointovideo.com/templates/paws-at-you-ai-video/) | The *paws at you* trend: your cat or dog sits right at the phone with big eyes and pats the screen with one paw, then leaves it on the glass. | 1 of your pet | 10 s |
 | [Cat on Ultra Bee](https://turnphotointovideo.com/templates/cat-on-ultra-bee-ai-video/) | Your cat or dog stands on an electric dirt bike, paws on the handlebars, and holds a long wheelie down a city road at golden hour, in quick cuts like the viral clip. | 1 of your pet | 10 s |
 | [Dog Elevator Prank](https://turnphotointovideo.com/templates/dog-elevator-prank-ai-video/) | Your pet walks upright beside you to the lift, presses the button, waits while you take your sneakers off, then nudges you into the lift and kicks the sneakers in after you. | 2 (your pet, then you), or 1 of your pet | 15 s |
 | [Zombie Ambush](https://turnphotointovideo.com/templates/zombie-ambush-ai-video/) | Your cat or dog is back as a glowing-eyed zombie in a dark room; the owner lowers the flashlight, opens their arms, and the two end up together in a field at sunset. | 1 of your pet, or 2 with you as the owner | 15 s |
@@ -28,6 +29,7 @@ The AI video trends going around TikTok and Instagram in 2026 that you can make 
 
 | Trend | What happens | Photos | Length |
 | --- | --- | --- | --- |
+| [Hop Hop Hop Dance](https://turnphotointovideo.com/templates/hop-hop-hop-dance-ai-video/) | The two-person perspective dance: phone on the floor, one of you big at the lens pats the air and the other drops on each "hop" far behind, then you swap. | 2, or 1 as twins | 10 s |
 | [Deck the Halls Dance](https://turnphotointovideo.com/templates/deck-the-halls-dance-ai-video/) | The Christmas pajama dance: two of you in matching plaid pajamas in a kitchen, straight-faced, with collar bounces, rolling arms, a spin, fists up on the "fa la la" and a freeze at the phone. | 2, or 1 solo | 10 s |
 | [Housewife Dance](https://turnphotointovideo.com/templates/housewife-dance-ai-video/) | The routine to Tate McRae's "Housewife", filmed from a phone on the floor: a low wide stance, hip sways, arms thrown up and both hands up at the end. | 1 | 10 s |
 | [Teach Me How to Dougie](https://turnphotointovideo.com/templates/teach-me-how-to-dougie-ai-video/) | The 2010 dance, back on TikTok: lean, brush a hand back over your head, left then right, and bounce easy. | 1 | 10 s |
@@ -45,6 +47,7 @@ The AI video trends going around TikTok and Instagram in 2026 that you can make 
 | --- | --- | --- | --- |
 | [Monkey Eating Apple](https://turnphotointovideo.com/templates/monkey-eating-apple-ai-video/) | A monkey leaps off a wall and grabs your apple mid-bite; a tug of war, you win it back and bite it anyway. | 1 | 10 s |
 | [Shoulder Carry](https://turnphotointovideo.com/templates/shoulder-carry-ai-video/) | The "I'm the one" trend: one of you is carried across the other's shoulders, swung down, then leans into the camera. | 2 | 10 s |
+| [Chased by Hyenas](https://turnphotointovideo.com/templates/chased-by-hyenas-ai-video/) | You sprint across the red savanna at a shaky camera with a pack of hyenas on your heels; one tumbles in the dust, you look back and scream. | 1 | 10 s |
 | [AI Dunk](https://turnphotointovideo.com/templates/ai-dunk-ai-video/) | In your own clothes, you dribble down a packed arena court, slam it home with one hand and scream at the camera. | 1 | 10 s |
 | [Fish Cutting](https://turnphotointovideo.com/templates/fish-cutting-ai-video/) | "Grandpa said he'd handle dinner": you take a cleaver to a fish as long as the kitchen island, stare at the camera and flex. | 1 | 10 s |
 | [Closing Door Prank](https://turnphotointovideo.com/templates/closing-door-prank-ai-video/) | "One, two, three, go!": you sprint down the hallway, the door swings shut at the last second, and you squeeze through and land on your knees laughing. | 1, or 2 with whoever closes the door | 10 s |
@@ -57,6 +60,7 @@ The AI video trends going around TikTok and Instagram in 2026 that you can make 
 
 | Trend | What happens | Photos | Length |
 | --- | --- | --- | --- |
+| [Santa Nice List](https://turnphotointovideo.com/templates/santa-nice-list-ai-video/) | Santa checks his Nice List in the workshop, blows gold sparkles into a gold frame, and your photo (or your pet's) comes alive in it and waves. | 1, you or your pet | 10 s |
 | [Toy Car to Real Car](https://turnphotointovideo.com/templates/toy-car-to-real-car-ai-video/) | A toy model of your car rides a train window, the train enters a tunnel, and your real car comes out. | 1 of your car | 10 s |
 | [Hello 2027](https://turnphotointovideo.com/templates/hello-2027-ai-video/) | You climb a giant marble 2027 on a mountain top for the new year, or push the 6 of 2026 off the cliff first. | 1 | 8–10 s |
 | [AI Caricature](https://turnphotointovideo.com/templates/ai-caricature-ai-video/) | Your photo turns into a big-headed 3D caricature of you that frowns, grins and winks. | 1 | 5–8 s |
