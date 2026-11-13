@@ -16,6 +16,7 @@ The AI video trends going around TikTok and Instagram in 2026 that you can make 
 
 | Trend | What happens | Photos | Length |
 | --- | --- | --- | --- |
+| [Dog Grooming Time](https://turnphotointovideo.com/templates/dog-grooming-time-ai-video/) | "My dog when it's grooming time", the gentle take: your dog or cat dodges the clippers, steals them and shaves a stripe into the groomer's hair. | 1 of your pet | 10 s |
 | [Paws At You](https://turnphotointovideo.com/templates/paws-at-you-ai-video/) | The *paws at you* trend: your cat or dog sits right at the phone with big eyes and pats the screen with one paw, then leaves it on the glass. | 1 of your pet | 10 s |
 | [Cat on Ultra Bee](https://turnphotointovideo.com/templates/cat-on-ultra-bee-ai-video/) | Your cat or dog stands on an electric dirt bike, paws on the handlebars, and holds a long wheelie down a city road at golden hour, in quick cuts like the viral clip. | 1 of your pet | 10 s |
 | [Dog Elevator Prank](https://turnphotointovideo.com/templates/dog-elevator-prank-ai-video/) | Your pet walks upright beside you to the lift, presses the button, waits while you take your sneakers off, then nudges you into the lift and kicks the sneakers in after you. | 2 (your pet, then you), or 1 of your pet | 15 s |
@@ -45,6 +46,17 @@ The AI video trends going around TikTok and Instagram in 2026 that you can make 
 
 | Trend | What happens | Photos | Length |
 | --- | --- | --- | --- |
+| [You Never Let Her Pay](https://turnphotointovideo.com/templates/you-never-let-her-pay-ai-video/) | "POV: you never let her pay": you wave away your date's card, open your wallet on a kitchen sponge, then end up scrubbing plates at the restaurant sink. | 1 | 10 s |
+| [Careless Whisper Car](https://turnphotointovideo.com/templates/careless-whisper-car-ai-video/) | Three friends in a parked car: the back seat steals the chips, the driver's hand lands on yours, and all three stare into the dashcam. | 1 or 2 | 10 s |
+| [Counting Money](https://turnphotointovideo.com/templates/counting-money-ai-video/) | "Contando billetes": you on a sofa behind a table of (AI-made) cash, riffling a stack at the camera, sunglasses down, then the stack held to your ear like a phone. | 1 | 10 s |
+| [Bicep Heart](https://turnphotointovideo.com/templates/bicep-heart-ai-video/) | A shy wave, one arm flexed, the other hand curved over the bicep until the two make a heart, held for the camera. | 1 | 10 s |
+| [Waist Heart](https://turnphotointovideo.com/templates/waist-heart-ai-video/) | The answer to the bicep heart: a fake flex, a shrug, then one hand curved on the waist so it makes a heart with the waist line. | 1 | 10 s |
+| [Selfie With Santa](https://turnphotointovideo.com/templates/selfie-with-santa-ai-video/) | A video selfie by a lit tree with Santa leaning in: he laughs, gives a thumbs up and a wink, and you both wave. | 1 | 10 s |
+| [Bestie Photo Booth](https://turnphotointovideo.com/templates/bestie-photo-booth-ai-video/) | You and your best friend side by side in a retro photo booth: four flashes, four poses, then both of you laughing. | 2 | 10 s |
+| [Bad Times](https://turnphotointovideo.com/templates/bad-times-ai-video/) | You in a bright kitchen telling off whoever is filming: head in hands, a wagging finger, both palms up, then right into the lens. | 1 | 10 s |
+| [Darts 170 Prank](https://turnphotointovideo.com/templates/darts-170-prank-ai-video/) | A TV darts final in split screen: you throw three darts, all three land in the bullseye, and the arena jumps up. | 1 | 10 s |
+| [Boyfriend Makeup Prank](https://turnphotointovideo.com/templates/boyfriend-makeup-prank-ai-video/) | A hand gives him the full routine in close-up, foundation to false lashes and gloss, until his eyes snap open in full glam. | 1 | 10 s |
+| [Mom Dad Sister Brother](https://turnphotointovideo.com/templates/mom-dad-sister-brother-ai-video/) | A little heart flicked to Mom, Dad and Sister, then the big glowing one pulled from your chest for Brother. | 1 | 10 s |
 | [Rubber Band Prank](https://turnphotointovideo.com/templates/rubber-band-prank-ai-video/) | You aim a giant exercise band like a slingshot at someone writing at the kitchen table; it snaps back into your own cheek and she just turns and stares. | 1 | 10 s |
 | [Spider Filter Prank](https://turnphotointovideo.com/templates/spider-filter-prank-ai-video/) | You're scrolling on the sofa when a big hairy spider drops onto your cheek: the frozen second, the scream, the phone flying and the leap. | 1 | 10 s |
 | [Thanksgiving Dinner](https://turnphotointovideo.com/templates/thanksgiving-dinner-ai-video/) | You stand at the head of a candlelit Thanksgiving table, carve the first slice of turkey and take a bow while everyone cheers. | 1 | 10 s |
@@ -63,8 +75,12 @@ The AI video trends going around TikTok and Instagram in 2026 that you can make 
 
 | Trend | What happens | Photos | Length |
 | --- | --- | --- | --- |
+| [Opa Opa Opa](https://turnphotointovideo.com/templates/opa-opa-opa-ai-video/) | The bouncy hair trend: three bounces at your front camera, your hair bursting up a little higher each time. | 1 | 10 s |
+| [Laughing Fairy](https://turnphotointovideo.com/templates/laughing-fairy-ai-video/) | You as a hand-sized fairy on a mossy branch at night, giggling in a flashlight beam, found-footage style. | 1 | 10 s |
+| [Hand Pinch Filter](https://turnphotointovideo.com/templates/hand-pinch-filter-ai-video/) | Eyes shut, a hand pinches your cheek and stretches it out like dough; it snaps back and you burst out laughing. | 1 | 10 s |
 | [I Want Wings](https://turnphotointovideo.com/templates/i-want-wings-ai-video/) | The bug-to-butterfly glow-up: slumped at your desk under "Eww, squish it!", then a hard cut to you glowed up with a blue butterfly on your shoulder: "Be gentle". | 1 | 10 s |
 | [Snow Globe](https://turnphotointovideo.com/templates/snow-globe-ai-video/) | You, tiny, inside a snow globe on the mantel; a hand shakes it and you spin in the swirling snow. | 1 | 10 s |
+| [Christmas Princess Carriage](https://turnphotointovideo.com/templates/christmas-princess-carriage-ai-video/) | Step out of a glowing glass carriage on a snowy Christmas night in a red satin gown, then turn, spin and curtsy. | 1 | 10 s |
 | [Santa Nice List](https://turnphotointovideo.com/templates/santa-nice-list-ai-video/) | Santa checks his Nice List in the workshop, blows gold sparkles into a gold frame, and your photo (or your pet's) comes alive in it and waves. | 1, you or your pet | 10 s |
 | [Toy Car to Real Car](https://turnphotointovideo.com/templates/toy-car-to-real-car-ai-video/) | A toy model of your car rides a train window, the train enters a tunnel, and your real car comes out. | 1 of your car | 10 s |
 | [Hello 2027](https://turnphotointovideo.com/templates/hello-2027-ai-video/) | You climb a giant marble 2027 on a mountain top for the new year, or push the 6 of 2026 off the cliff first. | 1 | 8–10 s |
