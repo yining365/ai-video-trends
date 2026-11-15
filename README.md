@@ -16,6 +16,7 @@ The AI video trends going around TikTok and Instagram in 2026 that you can make 
 
 | Trend | What happens | Photos | Length |
 | --- | --- | --- | --- |
+| [Dog Pool Party](https://turnphotointovideo.com/templates/dog-pool-party-ai-video/) | Your dog or cat in pink goggles, a ruffled swimsuit and arm floats, dancing on its back legs by a glowing pool at night. | 1 of your pet | 10 s |
 | [Dog Grooming Time](https://turnphotointovideo.com/templates/dog-grooming-time-ai-video/) | "My dog when it's grooming time", the gentle take: your dog or cat dodges the clippers, steals them and shaves a stripe into the groomer's hair. | 1 of your pet | 10 s |
 | [Paws At You](https://turnphotointovideo.com/templates/paws-at-you-ai-video/) | The *paws at you* trend: your cat or dog sits right at the phone with big eyes and pats the screen with one paw, then leaves it on the glass. | 1 of your pet | 10 s |
 | [Cat on Ultra Bee](https://turnphotointovideo.com/templates/cat-on-ultra-bee-ai-video/) | Your cat or dog stands on an electric dirt bike, paws on the handlebars, and holds a long wheelie down a city road at golden hour, in quick cuts like the viral clip. | 1 of your pet | 10 s |
@@ -30,6 +31,11 @@ The AI video trends going around TikTok and Instagram in 2026 that you can make 
 
 | Trend | What happens | Photos | Length |
 | --- | --- | --- | --- |
+| [Christian Dior Dance](https://turnphotointovideo.com/templates/christian-dior-dance-ai-video/) | The "I like Christian Dior" two-person dance from two photos: hoods up, arms crossed, claps, a shoulder bump and both pointing at the sky. | 2 | 10 s |
+| [Wassup Dance](https://turnphotointovideo.com/templates/wassup-dance-ai-video/) | The "been a minute, wassup" dance in your own clothes: a loose bounce up to the phone, hand flicks at the chest, a head tilt and a glance at the door. | 1 | 8 s |
+| [Hey Boo Come Slide With Me](https://turnphotointovideo.com/templates/hey-boo-come-slide-with-me-ai-video/) | The couples slide from two photos: hand in hand, step left and right, a sway, one turn under the arm and both pointing at the phone. | 2 | 10 s |
+| [Thanksgiving Dance](https://turnphotointovideo.com/templates/thanksgiving-dance-ai-video/) | The Bend for Thanksgiving: arm swings, hands on your head, the deep bend and bounce, then dancing up to the phone with the turkey behind you. | 1 | 10 s |
+| [Golf Dance](https://turnphotointovideo.com/templates/golf-dance-ai-video/) | The golf dance challenge: a tiptoe shuffle on a night driving range, one big drive, then a dance with the club like a cane and a point at the camera. | 1 | 10 s |
 | [Hop Hop Hop Dance](https://turnphotointovideo.com/templates/hop-hop-hop-dance-ai-video/) | The two-person perspective dance: phone on the floor, one of you big at the lens pats the air and the other drops on each "hop" far behind, then you swap. | 2, or 1 as twins | 10 s |
 | [Deck the Halls Dance](https://turnphotointovideo.com/templates/deck-the-halls-dance-ai-video/) | The Christmas pajama dance: two of you in matching plaid pajamas in a kitchen, straight-faced, with collar bounces, rolling arms, a spin, fists up on the "fa la la" and a freeze at the phone. | 2, or 1 solo | 10 s |
 | [Housewife Dance](https://turnphotointovideo.com/templates/housewife-dance-ai-video/) | The routine to Tate McRae's "Housewife", filmed from a phone on the floor: a low wide stance, hip sways, arms thrown up and both hands up at the end. | 1 | 10 s |
@@ -75,6 +81,7 @@ The AI video trends going around TikTok and Instagram in 2026 that you can make 
 
 | Trend | What happens | Photos | Length |
 | --- | --- | --- | --- |
+| [Riding Lion](https://turnphotointovideo.com/templates/riding-lion-ai-video/) | The riding a lion trend in your own clothes: a lion walks up on a night road, roars, nuzzles your hand and carries you to the camera. | 1 | 10 s |
 | [Opa Opa Opa](https://turnphotointovideo.com/templates/opa-opa-opa-ai-video/) | The bouncy hair trend: three bounces at your front camera, your hair bursting up a little higher each time. | 1 | 10 s |
 | [Laughing Fairy](https://turnphotointovideo.com/templates/laughing-fairy-ai-video/) | You as a hand-sized fairy on a mossy branch at night, giggling in a flashlight beam, found-footage style. | 1 | 10 s |
 | [Hand Pinch Filter](https://turnphotointovideo.com/templates/hand-pinch-filter-ai-video/) | Eyes shut, a hand pinches your cheek and stretches it out like dough; it snaps back and you burst out laughing. | 1 | 10 s |
