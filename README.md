@@ -31,6 +31,7 @@ The AI video trends going around TikTok and Instagram in 2026 that you can make 
 
 | Trend | What happens | Photos | Length |
 | --- | --- | --- | --- |
+| [Dance With Santa](https://turnphotointovideo.com/templates/dance-with-santa-ai-video/) | You and Santa Claus side by side between two lit Christmas trees, in your own clothes: claps, a hip sway, arm rolls, a spin each and a wave. | 1 | 10 s |
 | [Christian Dior Dance](https://turnphotointovideo.com/templates/christian-dior-dance-ai-video/) | The "I like Christian Dior" two-person dance from two photos: hoods up, arms crossed, claps, a shoulder bump and both pointing at the sky. | 2 | 10 s |
 | [Wassup Dance](https://turnphotointovideo.com/templates/wassup-dance-ai-video/) | The "been a minute, wassup" dance in your own clothes: a loose bounce up to the phone, hand flicks at the chest, a head tilt and a glance at the door. | 1 | 8 s |
 | [Hey Boo Come Slide With Me](https://turnphotointovideo.com/templates/hey-boo-come-slide-with-me-ai-video/) | The couples slide from two photos: hand in hand, step left and right, a sway, one turn under the arm and both pointing at the phone. | 2 | 10 s |
@@ -52,6 +53,8 @@ The AI video trends going around TikTok and Instagram in 2026 that you can make 
 
 | Trend | What happens | Photos | Length |
 | --- | --- | --- | --- |
+| [Tidal Wave](https://turnphotointovideo.com/templates/tidal-wave-ai-video/) | You and two friends pose at a stormy seafront railing, a giant wave crashes over you and you all get up laughing. | 1 or 3 | 10 s |
+| [Snowman Dance](https://turnphotointovideo.com/templates/snowman-dance-ai-video/) | The Snowman Christmas couple dance from two photos in matching plaid pajamas: hands behind backs, a twirl, the swing out and a jump together. | 2 | 10 s |
 | [You Never Let Her Pay](https://turnphotointovideo.com/templates/you-never-let-her-pay-ai-video/) | "POV: you never let her pay": you wave away your date's card, open your wallet on a kitchen sponge, then end up scrubbing plates at the restaurant sink. | 1 | 10 s |
 | [Careless Whisper Car](https://turnphotointovideo.com/templates/careless-whisper-car-ai-video/) | Three friends in a parked car: the back seat steals the chips, the driver's hand lands on yours, and all three stare into the dashcam. | 1 or 2 | 10 s |
 | [Counting Money](https://turnphotointovideo.com/templates/counting-money-ai-video/) | "Contando billetes": you on a sofa behind a table of (AI-made) cash, riffling a stack at the camera, sunglasses down, then the stack held to your ear like a phone. | 1 | 10 s |
@@ -81,6 +84,7 @@ The AI video trends going around TikTok and Instagram in 2026 that you can make 
 
 | Trend | What happens | Photos | Length |
 | --- | --- | --- | --- |
+| [Self Hug Sketch](https://turnphotointovideo.com/templates/self-hug-sketch-ai-video/) | A giant pencil drawing of you on a brick wall wraps its arms around you from behind, in your own clothes. | 1 | 10 s |
 | [Riding Lion](https://turnphotointovideo.com/templates/riding-lion-ai-video/) | The riding a lion trend in your own clothes: a lion walks up on a night road, roars, nuzzles your hand and carries you to the camera. | 1 | 10 s |
 | [Opa Opa Opa](https://turnphotointovideo.com/templates/opa-opa-opa-ai-video/) | The bouncy hair trend: three bounces at your front camera, your hair bursting up a little higher each time. | 1 | 10 s |
 | [Laughing Fairy](https://turnphotointovideo.com/templates/laughing-fairy-ai-video/) | You as a hand-sized fairy on a mossy branch at night, giggling in a flashlight beam, found-footage style. | 1 | 10 s |
