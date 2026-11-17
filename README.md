@@ -16,6 +16,7 @@ The AI video trends going around TikTok and Instagram in 2026 that you can make 
 
 | Trend | What happens | Photos | Length |
 | --- | --- | --- | --- |
+| [Whiny Dog](https://turnphotointovideo.com/templates/whiny-dog-ai-video/) | Your dog or cat by its empty bowl, whining up at the camera nonstop, until the food comes and it grins. | 1 of your pet | 10 s |
 | [Dog Pool Party](https://turnphotointovideo.com/templates/dog-pool-party-ai-video/) | Your dog or cat in pink goggles, a ruffled swimsuit and arm floats, dancing on its back legs by a glowing pool at night. | 1 of your pet | 10 s |
 | [Dog Grooming Time](https://turnphotointovideo.com/templates/dog-grooming-time-ai-video/) | "My dog when it's grooming time", the gentle take: your dog or cat dodges the clippers, steals them and shaves a stripe into the groomer's hair. | 1 of your pet | 10 s |
 | [Paws At You](https://turnphotointovideo.com/templates/paws-at-you-ai-video/) | The *paws at you* trend: your cat or dog sits right at the phone with big eyes and pats the screen with one paw, then leaves it on the glass. | 1 of your pet | 10 s |
@@ -53,6 +54,8 @@ The AI video trends going around TikTok and Instagram in 2026 that you can make 
 
 | Trend | What happens | Photos | Length |
 | --- | --- | --- | --- |
+| [Flash Couple Silhouette](https://turnphotointovideo.com/templates/flash-couple-silhouette-ai-video/) | You two on pure black, a flash, a glowing gold outline, then a heart made with your hands. | 2 | 10 s |
+| [Plug Walk](https://turnphotointovideo.com/templates/plug-walk-ai-video/) | A dollar from a car window at a red light, then the slow, bouncy plug walk across the crossing; pets too. | 1 | 10 s |
 | [Tidal Wave](https://turnphotointovideo.com/templates/tidal-wave-ai-video/) | You and two friends pose at a stormy seafront railing, a giant wave crashes over you and you all get up laughing. | 1 or 3 | 10 s |
 | [Snowman Dance](https://turnphotointovideo.com/templates/snowman-dance-ai-video/) | The Snowman Christmas couple dance from two photos in matching plaid pajamas: hands behind backs, a twirl, the swing out and a jump together. | 2 | 10 s |
 | [You Never Let Her Pay](https://turnphotointovideo.com/templates/you-never-let-her-pay-ai-video/) | "POV: you never let her pay": you wave away your date's card, open your wallet on a kitchen sponge, then end up scrubbing plates at the restaurant sink. | 1 | 10 s |
@@ -84,6 +87,8 @@ The AI video trends going around TikTok and Instagram in 2026 that you can make 
 
 | Trend | What happens | Photos | Length |
 | --- | --- | --- | --- |
+| [Red Riding Hood](https://turnphotointovideo.com/templates/red-riding-hood-ai-video/) | You (or your pet) in a red velvet cloak on a snowy forest road with grey wolves, then the hood comes down. | 1 | 10 s |
+| [Misanthropy Meme](https://turnphotointovideo.com/templates/misanthropy-meme-ai-video/) | You drawn as a flat cartoon: side-eye left and right, the screen turns red and you grin. | 1 | 8 s |
 | [Self Hug Sketch](https://turnphotointovideo.com/templates/self-hug-sketch-ai-video/) | A giant pencil drawing of you on a brick wall wraps its arms around you from behind, in your own clothes. | 1 | 10 s |
 | [Riding Lion](https://turnphotointovideo.com/templates/riding-lion-ai-video/) | The riding a lion trend in your own clothes: a lion walks up on a night road, roars, nuzzles your hand and carries you to the camera. | 1 | 10 s |
 | [Opa Opa Opa](https://turnphotointovideo.com/templates/opa-opa-opa-ai-video/) | The bouncy hair trend: three bounces at your front camera, your hair bursting up a little higher each time. | 1 | 10 s |
