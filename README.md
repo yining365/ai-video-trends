@@ -87,6 +87,7 @@ The AI video trends going around TikTok and Instagram in 2026 that you can make 
 
 | Trend | What happens | Photos | Length |
 | --- | --- | --- | --- |
+| [Santa Sleigh](https://turnphotointovideo.com/templates/santa-sleigh-ai-video/) | Santa hands you (or your pet) the reins on a snowy rooftop and you fly over a lit-up town at night. | 1 | 10 s |
 | [Red Riding Hood](https://turnphotointovideo.com/templates/red-riding-hood-ai-video/) | You (or your pet) in a red velvet cloak on a snowy forest road with grey wolves, then the hood comes down. | 1 | 10 s |
 | [Misanthropy Meme](https://turnphotointovideo.com/templates/misanthropy-meme-ai-video/) | You drawn as a flat cartoon: side-eye left and right, the screen turns red and you grin. | 1 | 8 s |
 | [Self Hug Sketch](https://turnphotointovideo.com/templates/self-hug-sketch-ai-video/) | A giant pencil drawing of you on a brick wall wraps its arms around you from behind, in your own clothes. | 1 | 10 s |
